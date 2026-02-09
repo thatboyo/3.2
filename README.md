@@ -1,5 +1,4 @@
-You gotta nissa or octopus?
-youve come to the right place!
+
 
 Original Website:thatboyo.github.io/3.2
 
